@@ -4,4 +4,8 @@ im not very active on pt but here is my most active intrk platform https://saint
 
 for the sake of my sanity yes i am a sys no i will not tell u who is fronting
 
-I NEED TONETAGS!!!!! I DONT UNDERSTAND FLIRTING OR INSULTS MAJORITY OF THE TIME!!!!!
+i need tonetags. donr jokingly insult or flirt with me unless ur close oomfs
+
+i might be rude or offstandish to people im sorry. c+h and inspo avoidant Minus saint oomfs 🫀
+
+fattest elliot copelink and 1x4 kin :B
